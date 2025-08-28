@@ -1,1 +1,1 @@
-# climb-it-easy.github.io
+Climb it easy, all editions of trails
